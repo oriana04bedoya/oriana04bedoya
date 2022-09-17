@@ -1,8 +1,8 @@
 # PythonFiles
 
-### Jose R F Junior 👋
+### Oriana 👋
 
-Jose R F Junior - web2ajax@gmail.com
+Oriana - oriana.python@gmail.com
 
 ### Hi there 👋
 
